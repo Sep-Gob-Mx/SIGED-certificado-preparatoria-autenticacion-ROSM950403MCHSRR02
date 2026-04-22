@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-ROSM950403MCHSRR02
+ROSM950403MCHSRR02
